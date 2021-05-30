@@ -1,5 +1,5 @@
 # Hi there, Welcome to my Github Profile!👋
-## My Name is Ian Mubangizi :raising_hand: 
+## My Name is Ian Mubangizi 👨🏾‍🎓👨🏾‍💻
 
 - 💬 Ask me about anything
 - 📫 How to reach me: io@ianmubangizi.com
