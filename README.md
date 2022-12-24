@@ -2,7 +2,7 @@
 ## My Name is Ian Mubangizi 👨🏾‍🎓👨🏾‍💻
 
 - 💬 Ask me about anything
-- 📫 How to reach me: io@ianmubangizi.com
+- 📫 How to reach me: ian@mubangizi.com
 - Let's get that idea 🚀🤘
 
 ## My GitHub Stats 📊
